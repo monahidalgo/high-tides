@@ -1,2 +1,2 @@
 High Tides 
-> Amation Studios for App. & Website design
+> Animation Studios for App. & Website design
