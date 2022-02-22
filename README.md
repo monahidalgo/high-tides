@@ -1,2 +1,2 @@
-High Tide 
-> Amations Studios 
+High Tides 
+> Amation Studios for App. & Website design
